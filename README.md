@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @juliwaves!
+- If you're interested in working together, chatting about video games, or grabbing coffee/boba, you can reach me at julia.shen@berkeley.edu.
